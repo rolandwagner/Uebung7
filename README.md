@@ -76,6 +76,8 @@ Santamaria Noemi - noemisa
 
 Stöcklin Yannik - ystoecklin
 
+Stohrer Diego - Stohrdi1
+
 ##T
 Tran Lisa - zeryetia
 
