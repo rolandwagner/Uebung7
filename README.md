@@ -74,6 +74,8 @@ Philipp Sebastian - theSeppi
 Rohrer Christoph - chris-rohrer
 
 ##S
+Simeon Habig - simzuiop
+
 Schneider Lukas
 
 Steffen Debora - dsteff
@@ -100,8 +102,6 @@ von Muehlenen Nair - nairnan
 Wyss Vanessa - Sebby96
 
 Weber Mario - Webmar
-
-Wagner Dorothee - eruanna
 
 ##X
 
