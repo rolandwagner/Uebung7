@@ -41,6 +41,8 @@ Gabriel Gasser - ggas
 ##H
 Hünenberger Maximilian - Qbyte248
 
+Hackinger Max - happychameleon
+
 ##I
 Illi Cristina - cristinailli
 
