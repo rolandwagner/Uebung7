@@ -115,6 +115,8 @@ Weber Mario - Webmar
 
 Wanner Kai - CappaAI10
 
+Wichmann Natalie - NatalieWichmann
+
 ##X
 
 ##Y
