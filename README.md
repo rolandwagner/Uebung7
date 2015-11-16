@@ -48,6 +48,8 @@ Galery Käser Lucas - daydreamer12711
 Gurtner Silvio - SilvioG
 
 ##H
+Hauk Pascal - UniBasel
+
 Hünenberger Maximilian - Qbyte248
 
 Hackinger Max - happychameleon
