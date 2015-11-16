@@ -13,6 +13,8 @@ Achermann Laura - lauraelisa
 
 Arnold Elias - Arneli
 ##B
+Bantle Matthias - Allegra96
+
 Beispiel Name - Alias
 
 Ben Sayed Nadia - Nooeela
