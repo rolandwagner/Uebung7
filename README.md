@@ -10,6 +10,8 @@ Editieren sie anschliessend diese Datei, indem sie ihren Namen unten eintragen (
 Antoniadis Nadia - nadiaantoniadis
 
 Achermann Laura - lauraelisa
+
+Arnold Elias - Arneli
 ##B
 Beispiel Name - Alias
 
