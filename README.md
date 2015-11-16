@@ -42,6 +42,8 @@ Forrer Luca - celineclaudia
 
 Flückiger Nadja - nadja1996
 
+Fluder Simon - S1mi
+
 ##G 
 Gabriel Gasser - ggas
 
