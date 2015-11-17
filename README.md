@@ -21,6 +21,8 @@ Beispiel Name - Alias
 
 Ben Sayed Nadia - Nooeela
 
+Böing Genia - boegen00
+
 Büchner Clemens - ClemensBuechner
 
 Beyeler Tobias - tbeyeler
