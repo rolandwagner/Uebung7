@@ -12,6 +12,8 @@ Antoniadis Nadia - nadiaantoniadis
 Achermann Laura - lauraelisa
 
 Arnold Elias - Arneli
+
+Arnosti Nina - Chemikerin
 ##B
 Bantle Matthias - Allegra96
 
