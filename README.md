@@ -15,6 +15,8 @@ Arnold Elias - Arneli
 ##B
 Bantle Matthias - Allegra96
 
+Barth Sofia - SoBart
+
 Beispiel Name - Alias
 
 Ben Sayed Nadia - Nooeela
