@@ -147,6 +147,9 @@ Sinnathamby Manusha - Manusha96
 Schärer Jonas - schjon11
 
 Seidinger Daniel - Xyren0
+
+Schwendener Linard - Teifun2
+
 ##T
 Tran Lisa - zeryetia
 
